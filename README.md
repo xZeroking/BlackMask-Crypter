@@ -28,4 +28,6 @@ Telegram : https://t.me/spoof0x
 
 joinGroup : https://t.me/xZeroOfficial
 
+ICQ : @Spoof0x
+
 
