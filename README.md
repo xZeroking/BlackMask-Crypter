@@ -30,4 +30,6 @@ joinGroup : https://t.me/xZeroOfficial
 
 ICQ : @Spoof0x
 
+Skype : https://join.skype.com/invite/uqkMh5WZuGkx
+
 
